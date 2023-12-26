@@ -9,10 +9,7 @@ My journey in the world of technology has led me to explore various facets of ap
 I have been developing flutter applications you can view the apks of some of my projects in my drive link attached.
 https://drive.google.com/drive/folders/1KyagpHxc3r6Ou7oI-f0js94VT3yejIrA
 
-In addition to my technical prowess, I have a keen eye on writing a readable code. Which make me a valueable asset to the company view source codes of my projects in my GitHub profile https://github.com/harry95730
-
-I'm excited about the opportunity to contribute my skills and knowledge to our team and help achieve our company's goals. Thank you for considering my application.
-
+For more details contact me at 9573099634 or email id harryasher11@gmail.com
 
 Best Regards,
 Harry Asher
